@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Jaammmees
-- 👀 I’m currently interested in writing programs given a problem :)
+- 👀 I’m in pursuit of a full-time graduate position at a tech company!
 - 🌱 I’m currently learning computer science at the University of Adelaide
 - 📫 You can reach me at james.lim2002@Outlook.com
 
